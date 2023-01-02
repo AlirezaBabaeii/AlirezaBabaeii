@@ -6,7 +6,7 @@
 
 </div>
 
-> Continuous activity in the field of modern web and web 3 and Js derivatives for mobile and server for 3 years + eager to learn and face new challenges.
+> Continuous activity in the field of modern web and web 5 and Js derivatives for mobile and server for 3 years + eager to learn and face new challenges.
 
 
 
